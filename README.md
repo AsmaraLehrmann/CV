@@ -1,2 +1,2 @@
 # Asmara A. Lehrmann's Curriculum Vitae
-Last updated 31 March 2026
+Last updated 26 August 2026
